@@ -6,7 +6,7 @@
 
 ## 网站入口
 
-**一键访问：**<a href="https://yinhezhinan.hezidh.com/" style="color: red; text-decoration: none;">🔥 观影gying官网入口</a>
+**一键访问：**<a href="https://btnull.hezidh.com/" style="color: red; text-decoration: none;">🔥 观影gying官网入口</a>
 
 **一键访问：**<a href="https://appxiazai.pages.dev/" style="color: red; text-decoration: none;">✨ 网友汇总的影视在线看网站</a>
 
